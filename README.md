@@ -1,0 +1,2 @@
+# Bitvexa-Logo
+Logo Bitvexa
